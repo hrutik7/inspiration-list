@@ -1,1 +1,1 @@
-✨ My reading list over a one place
+✨ My reading list in one place
